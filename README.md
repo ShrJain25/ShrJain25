@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @ShrJain25
 - 👀 I’m interested in ... Providin jobs for Software Enginner
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ... How to be the best recruiter in Tech
 - 💞️ I’m looking to collaborate on ... Hiring Software Engineer 
 - 📫 How to reach me ... Contact no. 218-319-7971
-- 😄 Pronouns: ...
+- 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ...
 
 <!---
