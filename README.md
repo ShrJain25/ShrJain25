@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Hiring Software Engineer 
 - 📫 How to reach me ... Contact no. 218-319-7971
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... 60% of jobs are never advertised and are filled through employee referrals or internal hires. It’s all about who you know! 🤝💼
 
 <!---
 ShrJain25/ShrJain25 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
